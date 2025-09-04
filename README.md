@@ -1,1 +1,2 @@
-# MPHO-Tshabalala-ST10447721-Group-3-
+This file has Two sections A and B 
+Section B is my own work and planning 
